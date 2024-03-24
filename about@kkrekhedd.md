@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kkrekhedd
+- 👀 I’m interested in nothing
+- 📫 How to reach me: discord @kkrekheddd
+- 😄 Pronouns: he/him
